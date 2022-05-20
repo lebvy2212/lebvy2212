@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @levy
 - 👀 I’m interested in finding Tech Talent in VN (mostly HCM City)
-- 💞️ I’m looking for many positions for LECLE Team
+- 💞️ I’m looking for teammates for many positions for LECLE Team
 - 📫 How to reach me: lebvy2212@gmail.com
 
 <!---
